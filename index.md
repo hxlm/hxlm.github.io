@@ -6,13 +6,13 @@
 ### 点击下方开启您奇幻之旅
 
 
-[主页](https://hxlm.org/#/register?code=Y1FQYToS)
+[主入口](https://hxlm.org/#/register?code=Y1FQYToS)       如无法使用请使用备用
 
-[注册地址1](http://hxlm.org/#/register?code=Y1FQYToS)
+[备用入口1](http://hxlm.org/#/register?code=Y1FQYToS)      如无法使用请使用备用
 
-[注册地址2](https://hxlm.best/#/register?code=Y1FQYToS)
+[备用入口2](https://hxlm.best/#/register?code=Y1FQYToS)    如无法使用请使用备用
 
-[注册地址3](https://hxlm.cloud/#/register?code=Y1FQYToS)
+[备用入口3](https://hxlm.cloud/#/register?code=Y1FQYToS)   如无法使用请使用备用
 
 本站服务条款
 
