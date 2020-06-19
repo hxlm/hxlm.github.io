@@ -14,6 +14,18 @@
 
 [备用入口3](https://hxlm.cloud/#/register?code=Y1FQYToS)   如无法使用请使用备用
 
+[备用入口4](https://www.hxlm.org/#/register?code=Y1FQYToS)   如无法使用请使用备用
+
+[备用入口5](https://www.hxlm.best/#/register?code=Y1FQYToS)   如无法使用请使用备用
+
+[备用入口6](http://www.hxlm.org/#/register?code=Y1FQYToS)   如无法使用请使用备用
+
+[备用入口7](http://www.hxlm.best/#/register?code=Y1FQYToS)   如无法使用请使用备用
+
+[备用入口8](http://hxlm.org/#/register?code=Y1FQYToS)   如无法使用请使用备用
+
+[备用入口9](http://hxlm.best/#/register?code=Y1FQYToS)   如无法使用请使用备用
+
 [订阅转换平台](https://sub.hxlm.org)   如无法使用请使用备用
 
 [官方WIKI](https://wiki.hxlm.org)   如无法使用请使用备用
